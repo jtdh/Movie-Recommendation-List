@@ -15,13 +15,22 @@
 电影和剧集，作为现代文化的重要载体，以其独特的艺术魅力和深远的社会影响力吸引了无数观众。在浩如烟海的作品中，有些作品因其卓越的创意、深刻的主题和精湛的制作技术而被广大观众和专业机构所推崇。Movie-Recommendation-List（以下简称[M-R-L]）将为您详细推荐一系列绝对必看的优秀电影和剧集，涵盖各类主题和风格。
 &nbsp;&nbsp;&nbsp;&nbsp;
 
-[[→ 禁忌视频，中文字幕作品，一网打尽！ ←](https://github.com/follow666/tian_kong_ti)]
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
 
-[[→ 实用科学工具___翻--Q___加速器，极速看外网高清视频 ←](https://github.com/follow666/tian_kong_ti)]
+| 实用工具                      |                                
+|---------------------------|
+   |                                      |
+| [[ →最新中字作品，精彩探花更新在app← ](https://8dafsdgwthyhgnfggdhdfgdfsghg.chagbt-ai.top/1FfBB4WD5CFfgn5229WfoneMBKWAK7hwcQwP33GQ5c4pVjAM7EaYBRw4FJ8JMcKRAJFtCDKfrj9yzgYAHr5C4E3s)]
+   |                                      |
+| [[ →白嫖_科学实用工具VP加速器N← ](https://github.com/follow666/tian_kong_ti/blob/main/README.md)] | 
+   |                                      |
+| [[ →海角伦友家庭禁忌作品← ](https://8dafsdgwthyhgnfggdhdfgdfsghg.chagbt-ai.top/3jUsD4NDDUtcFBL86ZwEatjvFYQhLUGyp7WzXxxzHTSNfyoCt4SJ7bxGd5Fbb9hfpsAQVzpBwqCgBAXP5AkfLVyS)]      | 
+   |                                      |
+| [[ →小红帽美女大秀← ](https://8dafsdgwthyhgnfggdhdfgdfsghg.chagbt-ai.top/2U3UxjEXDNCF7ReDADu3MNunpLjhC7tQJuAZM4ky8Z9nMU68RMA4jBDgwNhdW7rMA8DEAar8fTpuZS4hRTv6pDv6)]            |
+   |                                      |
+| [[ →暗网← ](https://github.com/follow666/dark_web/blob/main/README.md)]                   |
 
-[[→ 美女大秀直播 ←](https://github.com/follow666/tian_kong_ti)]
-
-[[→ 海角&社区&伦&友聚集 ←](https://github.com/follow666/tian_kong_ti)]
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
 
 
 &nbsp;&nbsp;&nbsp;&nbsp;
@@ -358,4 +367,12 @@
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
 
 
-[91](https://github.com/follow666/91app_download).[海角](https://github.com/follow666/hai_jiao_she_qu).[luoli](https://github.com/follow666/luoli).[在线](https://github.com/follow666/hanxiucao).[狐狸直播](https://github.com/follow666/zhi_bo_app).[兄弟们填空题www](https://github.com/follow666/tian_kong_ti) .[女演员百科](https://github.com/jtdh/actress).[女演员wikii最新作品](https://github.com/jtdh/actress/wiki) .[论坛](https://github.com/jtdh/luntan).[磁力导航](https://github.com/jtdh/cili).[Z-Library图书馆](https://github.com/jtdh/Z-Library).[JAV图书馆](https://github.com/follow666/javlib.com_javlibrary.com).[网盘导航](https://github.com/jtdh/wangpan).[电影推荐排行榜](https://github.com/jtdh/Movie-Recommendation-List/wiki).[Tutorials](https://github.com/jtdh/Online-Web-Tutorials/wiki).[综合](https://github.com/jtdh/jtdh).[loufeng](https://github.com/jtdh/loufeng).[dongman](https://github.com/jtdh/dongman). [AI导航](https://github.com/jtdh/AI).[科学实用工具推荐，流畅看外网高清视频]( https://github.com/follow666/vpn)
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
+
+[nr](https://github.com/follow666/nr/blob/main/README.md).[Windows](https://github.com/jtdh/Windows/blob/main/README.md).[91](https://github.com/follow666/91app_download/blob/main/README.md).[haijiao](https://github.com/follow666/hai_jiao_she_qu/blob/main/README.md). [Microsoft365](https://github.com/jtdh/Microsoft365/blob/main/README.md).[luoli](https://github.com/follow666/luoli/blob/main/README.md).[hanxiucao](https://github.com/follow666/hanxiucao/blob/main/README.md).[android](https://github.com/jtdh/android/blob/main/README.md).[Disney](https://github.com/jtdh/Disney/blob/main/README.md).[bo](https://github.com/follow666/zhi_bo_app/blob/main/README.md).[tiankongti](https://github.com/follow666/tian_kong_ti/blob/main/README.md).[dark.web](https://github.com/follow666/dark_web/blob/main/README.md). [a](https://github.com/appmark123/actress/blob/main/README.md).[yi](https://github.com/follow666/yi/blob/main/README.md).[n](https://github.com/jtdh/new/blob/main/README.md).[h](https://hlxijue.com/).[luntan](https://github.com/follow666/luntan/blob/main/README.md).[l](https://github.com/jtdh/l/blob/main/README.md).[m](https://github.com/appmark123/actress/tree/main/main).[youtube](https://github.com/jtdh/youtube/blob/main/README.md).[nt](https://github.com/follow666/nt/blob/main/README.md).[macos](https://github.com/jtdh/macos/blob/main/README.md).[Netflix](https://github.com/jtdh/Netflix/blob/main/README.md).[Download.tools](https://github.com/jtdh/Download-tools/blob/main/README.md).[ZLibrary](https://github.com/jtdh/Z-Library/blob/main/README.md).[m](https://github.com/appmark123/actress/tree/main/md)[bi](https://github.com/follow666/bilibili/blob/main/README.md).[javlibrary](https://github.com/follow666/javlib.com_javlibrary.com/blob/main/README.md).[wangpan](https://github.com/jtdh/wangpan/blob/main/README.md).[Spotify](https://github.com/jtdh/Spotify/blob/main/README.md).[sms](https://github.com/jtdh/sms/blob/main/README.md).[List](https://github.com/jtdh/Movie-Recommendation-List/wiki).[vps](https://github.com/jtdh/vps/blob/main/README.md).[wiki](https://github.com/jtdh/vps/wiki).[Tutorials](https://github.com/jtdh/Online-Web-Tutorials/wiki).[jintou]( https://jintou.gitbook.io).[jtdh](https://github.com/jtdh/jtdh/blob/main/README.md).[loufeng](https://github.com/follow666/loufeng/blob/main/README.md).[dongman](https://github.com/jtdh/dongman/blob/main/README.md).[ll](https://github.com/jtdh/ll/blob/main/README.md).[AI](https://github.com/jtdh/AI/blob/main/README.md).[cili](https://github.com/jtdh/cili/blob/main/README.md).[vpn]( https://github.com/follow666/vpn/blob/main/README.md).[ai.issues](https://github.com/jtdh/AI/issues/)
+
+
+
